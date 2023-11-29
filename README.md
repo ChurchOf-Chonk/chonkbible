@@ -1,3 +1,3 @@
-[Official CHONK Bible Website](https://soullllllll-l.github.io/chonk-genesis/start.html/)
+[Official CHONK Bible Website]([https://soullllllll-l.github.io/chonk-genesis/start.html/](https://churchof-chonk.github.io/chonkbible-notstolen-/start.html))
 
 ![chonk](https://media2.giphy.com/media/y0PmMY7bfz41760kn8/200w.gif?cid=6c09b952r5jjqpllm08op30jn392div8bnxp631e4z3xh59c&ep=v1_gifs_search&rid=200w.gif&ct=g)
